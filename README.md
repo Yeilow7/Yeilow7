@@ -1,4 +1,4 @@
-👋 Hi there! I'm Juan Luis Ovalle, a 18-year-old enthusiast passionate about Artificial Intelligence and continuous learning. I am driven by curiosity and the desire to explore the endless possibilities that AI offers.
+👋 Hi there! I'm Juan Luis Ovalle, a 19-year-old enthusiast passionate about Artificial Intelligence and continuous learning. I am driven by curiosity and the desire to explore the endless possibilities that AI offers.
 
 About Me
 
