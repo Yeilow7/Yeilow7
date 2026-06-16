@@ -22,3 +22,4 @@ Contact with Me
 
 GitHub: [https://github.com/Yeilow7]
 Twitter: [https://x.com/YeiLowTech]
+Linkedin: [https://www.linkedin.com/in/juanluisovalle]
